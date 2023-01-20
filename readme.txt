@@ -1,2 +1,1 @@
-lame ass
-stinky things
+
